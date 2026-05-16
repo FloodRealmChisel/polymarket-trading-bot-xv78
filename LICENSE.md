@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with AI-powered Polymarket Plugin | liquidity-provision + leverage-trading, the #1 plugin. Includes liquidity-provision and leverage-trading for a
 
 
 
